@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @zer0ducky
+- 👀 I’m interested in playing games
+- 🌱 I’m currently learning how to play
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me, per discord 𝖒𝖍𝖒#0010
